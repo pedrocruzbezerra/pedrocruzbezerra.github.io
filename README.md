@@ -1,0 +1,1 @@
+Meu nome é Pedro Cruz, tenho 15 anos, Namoro há 8 meses, nome da minha namorada se chama Julia, sou palmeirense, fanático, e acredito que seremos campeões, estudo no IFPR, e minha matéria favorita é Introdução a informática com o professor Gabriel 
